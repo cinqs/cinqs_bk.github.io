@@ -1,1 +1,1 @@
-# cinqs.github.io
+# [cinqs.github.io](https://cinqs.github.io)
